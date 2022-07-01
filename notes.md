@@ -45,4 +45,16 @@ Their attitudes were also racist
 - Significance
 - Diversity
 
+## Question 3
+
+Answer: Mr tan was embarrassed because he felt underserving of the way Thomas addressed him, which implied that the latter was a subordinate to and of a lower rank than himself. However, given Thomas' race and how the British were deemed superior in singapore, Mr Tan did not feeel that it was proper or acceptable for him, a Chinese, to accept the title of "sir" from a British.
+
+## Activity 2 Question 2
+
+This source shows me that the treatment of Asians by the British during that time was unfair/ discriminatory.
+
+
+
+
+
 
