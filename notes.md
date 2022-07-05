@@ -119,15 +119,71 @@ Marked a significant shift away from authoritarianism (though not completely)
 		- Telegraph lines strung
 		- Etc.
 
-| Year | National Railroads (length of trak in miles)|
+| Year | National Railroads (length of track in miles)|
 |------|---------------------------------------------|
 |1872  |18  |
 |1876  |65  |
 |1880  |98  |
 |1884  |182 |
 |1888  |506 |
-4.  
-5. 
+
+|Year|GDP (in millions of yen)|
+|----|------------------------|
+|1885|3774|
+|1890|4639|
+|1895|5375|
+|1900|5966|
+|1905|6214|
+|1910|7424|
+
+### Social impacts
+
+4. New Education system
+- Aimed at spreading the pratical knowledge and practical arts needed to build national strength
+- 1872 ordinance: universal elementary schooling made compulsory
+- Literacy rate
+    - Eve of the meiji period: 40%
+		- End of meiji period: 80%
+5. Disintegration of the traditional class hierachy
+- End of the samurai class
+    - 1876: forced to convert their stipends into government bonds => low income
+		- Denied the right to wear a sword (apart from policemen etc.)
+
+### Cultural changes
+
+6. "Civilisation and Enlightenment"
+- 文明开化(bunmei kaika)
+- Widespread Experimentation with:
+    - Western thought and scientific technology
+		- Lifestyles, manners and customs of western peoples
+There were changes in
+- their dressing
+- their appearance
+- the food they ate
+- their conception of time
+- their architecture
+
+### Military impact
+
+7. Measures taken:
+- January 1873: Conscription ordinance
+    - Every young male to serve 3 years on active service, 4 years in reserves
+- 1870s: Single centralised organisation structure established for the army and navy
+- Army equipped with modern weapons and trained by french and german instructors
+
+Russo-Japanese war (1904 - 1905)
+
+- War fought between Russia and Japan over their respective interests in Korea and Manchuria
+- Japenese defeated the Russians
+
+Treaty of Portsmouth (1905)
+
+- Defeated Russians recognised the Japanese as the dominant power in Korea
+- Japan Gained control of:
+    - Liaodong Peninsula
+		- South Manchurian Railway
+		- Southern half of the Sakhalin Island
+
 
 
 
