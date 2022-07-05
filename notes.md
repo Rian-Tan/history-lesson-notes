@@ -58,7 +58,7 @@ This source shows me that the treatment of Asians by the British during that tim
 
 ## Historical background of Japan
 
-# The Tokugawa Shogunate
+### The Tokugawa Shogunate
 
 - japenese society:
 1. Emperor
@@ -73,7 +73,6 @@ This source shows me that the treatment of Asians by the British during that tim
 - Unlike peasants and artisans, they produced no goods that contributed to the society
 
 ## The Meiji Restoration and its impact
-
 
 
 
