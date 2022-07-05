@@ -109,10 +109,24 @@ Questions:
 - Established the first representative government in Asia
 - Set out the rights nad responsibilities of citizens
 - Formation of the Diet( Kokkai), the new government of Japan\
-### Marked a significant shift away from authoritarianism (though not completely)
+Marked a significant shift away from authoritarianism (though not completely)
 
-3. 
-4. 
+3. Measures taken
+- early 1870s: the government sought to "increase production and encourage industry" by introducing foreign technology
+- New land tax law (1873)
+- 1870: start of industrialisation
+    - Railway Lines laid
+		- Telegraph lines strung
+		- Etc.
+
+| Year | National Railroads (length of trak in miles)|
+|------|---------------------------------------------|
+|1872  |18  |
+|1876  |65  |
+|1880  |98  |
+|1884  |182 |
+|1888  |506 |
+4.  
 5. 
 
 
