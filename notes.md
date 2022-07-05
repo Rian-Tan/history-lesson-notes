@@ -60,7 +60,7 @@ This source shows me that the treatment of Asians by the British during that tim
 
 ### The Tokugawa Shogunate
 
-- japenese society:
+Japenese society:
 1. Emperor
 - This ruler was at the top of Japenese society but had little real power 
 2. Shogun and daimyo
