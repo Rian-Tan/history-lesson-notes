@@ -1,3 +1,4 @@
+### 1 July 2022
 ## Imperialism VS colonialism
 
 Imperialism:
@@ -53,6 +54,25 @@ Answer: Mr tan was embarrassed because he felt underserving of the way Thomas ad
 
 This source shows me that the treatment of Asians by the British during that time was unfair/ discriminatory.
 
+### 5 July 2022
+
+## Historical background of Japan
+
+# The Tokugawa Shogunate
+
+- japenese society:
+1. Emperor
+- This ruler was at the top of Japenese society but had little real power 
+2. Shogun and daimyo
+- He was the most important daimyo, or large landholdrer, and the actual ruler of Japan
+3. Samurai warriors
+- They were Japan's Warriors
+4. Peasants and artisans
+- These workers made up the largest class
+5. merchants
+- Unlike peasants and artisans, they produced no goods that contributed to the society
+
+## The Meiji Restoration and its impact
 
 
 
