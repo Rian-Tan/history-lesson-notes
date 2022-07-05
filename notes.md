@@ -74,6 +74,47 @@ Japenese society:
 
 ## The Meiji Restoration and its impact
 
+Questions:
+1. What is Nationalism?
+2. Why was the Meiji Restoration started?
+3. What were some key features of the Meiji Restoration?
+4. What were the effects of the Meiji Restoration?
+5. Why is the meiji restoration such and important event in Japenese history?
+
+### The Meiji Restoration: Aimed to strengthen Japan through industrialisation and modernisation.
+
+- The Meiji Leaders believed that modernisation was essential if Japan was to be protected against possible future threats from the outside
+
+### Commodore Matthew Perry's "Gunboat Diplomacy"
+
+- July 1853
+- Aimed to secure trading ports in Japan through the signing of a treaty
+
+### This was achieved through:
+
+- political changes which made the emperor the most powerful political figure in Japan
+- A military which closely supported the emperor
+- Strenghtening the military and economy
+
+### Impacts:
+
+1. Centralisation of power
+- 1871: Domains (han) abolished, new prefectures created
+- Abolishment of the domains signalled the end of a political and social system in Japan that had lasted for centuries
+- Daimyo -> given income and financial compensation to ensure their loyalty to the country
+- Samurais -> given only 1/3 of their former stipends
+- Emperor reinvented as a focus for popular political loyalty
+   - Turned into the high priest of a national cult based on shinto practices
+2. Meiji constitution (1889)
+- Established the first representative government in Asia
+- Set out the rights nad responsibilities of citizens
+- Formation of the Diet( Kokkai), the new government of Japan\
+### Marked a significant shift away from authoritarianism (though not completely)
+
+3. 
+4. 
+5. 
+
 
 
 
