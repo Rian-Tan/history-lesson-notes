@@ -184,7 +184,10 @@ Treaty of Portsmouth (1905)
 		- South Manchurian Railway
 		- Southern half of the Sakhalin Island
 
+### 12 july 2022
 
+Study the source A:
 
+   The Japanese viewed the Russians as weak and inferior, as they were begging for mercy and peace. This shows that the Russians surrendered to the Japanese.
 
 
