@@ -283,11 +283,14 @@ cartoon from slide 14 ^^^
     - The aim of the artist is to criticise the league for having no real power to deal with crisis/members.
     - The honour of nations being a doormat that can be stepped all over shows that they do not have any power.
 - Action Word
-    - 
+    - criticise 
 - Audience
-    - test 
+    - British
 - Anticipated Response
-    - 
+    - Feel a sense of anger towards the government for not taking any action against Japan
 - Context
-    - 
+    - The invasion of Manchuria was in going on and the League of Nations only issued a Verbal condemn.
+
+
+
 
