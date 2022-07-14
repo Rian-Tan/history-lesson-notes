@@ -270,7 +270,7 @@ Watch the following video to find out:
 
 ### Source Based Skill - Purpose
 
-https://github.com/Rian-Tan/history-lesson-notes/blob/main/doormat.png
+![A cartoon by David Low, published after Japan invaded Manchuria in 1931-2.](./doormat.png "hi")
 
 cartoon from slide 14 ^^^
 
