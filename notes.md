@@ -270,23 +270,24 @@ Watch the following video to find out:
 
 ### Source Based Skill - Purpose
 
-[A cartoon by David Low, published after Japan invaded Manchuria in 1931-2.](./doormat.png "hi")
+https://github.com/Rian-Tan/history-lesson-notes/blob/main/doormat.png
 
 cartoon from slide 14 ^^^
 
-(Refer to the cartoon in Slide 14) Why did the cartoonist publish this? Explain your answer using details from the source.)
+### (Refer to the cartoon in Slide 14) Why did the cartoonist publish this? Explain your answer using details from the source.)
 
 
 - Author
     - David Low (Political cartoonist)
 - Aim + evidence + explain
     - The aim of the artist is to criticise the league for having no real power to deal with crisis/members.
+    - The honour of nations being a doormat that can be stepped all over shows that they do not have any power.
 - Action Word
-    - test
+    - 
 - Audience
- - test 
+    - test 
 - Anticipated Response
- - 
+    - 
 - Context
- - 
+    - 
 
