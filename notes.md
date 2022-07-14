@@ -251,7 +251,7 @@ Protectionism: America placed tarrifs on imports as an attempt to discourage imp
 
 spoiler alert: they failed
 
-![Video](https://youtu.be/UU6qpj5NRDo)
+[Video](https://youtu.be/UU6qpj5NRDo)
 
 Watch the following video to find out:
 - What is the League of Nations?
