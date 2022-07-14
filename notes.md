@@ -190,4 +190,103 @@ Study the source A:
 
    The Japanese viewed the Russians as weak and inferior, as they were begging for mercy and peace. This shows that the Russians surrendered to the Japanese.
 
+### 14 july 2022
+
+### AAAAAAAAAAAAAAA
+
+## Causes of WWII In Europe and Asia-Pacific
+
+1. The great depression & how it led to the rise of dictators.
+2. Other reasons that led to the outbreak of WWII in Europe
+3. Outbreak of WWII in Europe
+4. Japan’s response to the Great Depression leading to outbreak of WWII in the Asia-Pacific
+
+
+Protectionism: America placed tarrifs on imports as an attempt to discourage imports.
+
+
+
+
+## How did the great depression lead to the rise of Dictators?
+
+[Video](https://youtu.be/Ojo8-GhhQcA)
+
+1. How did the Great Depression contribute to the rise of Hitler in Germany?
+
+- Hitler promised remilitarisation
+- 6mil ppl with no jobs
+- Remilitarisation allowed for more jobs
+- Taking resources from other nations
+
+2. How did the different dictators contribute to the outbreak of WWII in Europe?
+
+### Based on your understanding of the video, in your own words, explain how
+
+1. …the Great Depression contributed to the rise of Hitler in Germany.
+
+    - The depression gave hitler a lot of supporters/ attentino and publicity
+    - Popularity -> people voted for him
+    - Became chancellor 
+
+2. …Hitler’s Germany contributed to the outbreak of WWII in Europe.
+
+    - They became more aggressive 
+    - Invaded Austria, Czechoslovakia
+    - Invasion of Poland triggered WWII
+
+3. …the Great Depression led to Italy attacking Ethiopia (formerly known as Abyssinia) in 1936.
+
+    - Italy was inspired by Germany's aggression
+    - Decided to invade a state weaker than themselves
+    - Economy was threatened 
+
+4. …the Great Depression led to Japan attacking Manchuria in 1931
+
+    - Japan's economy bad
+    - Thought that attacking their neighbours would help them (bad idea irl dont attack your neighbours)
+
+## Other causes
+
+### (A) Weakness of the League of nations
+
+spoiler alert: they failed
+
+[Video](https://youtu.be/UU6qpj5NRDo)
+
+Watch the following video to find out:
+- What is the League of Nations?
+    - An international organization, aimed to maintain peace after WWII
+
+- What were the main aims of the League of Nations?
+    - Maintain peace, Provide humanitarian aid 
+
+
+- How did the League operate? 
+    - Similar to the UN (United Nations)
+- What were some key successes of the League?
+    - Abolishing slavery, freeing slaves, improving healthcare, Ending child labour
+- What were some key weaknesses/ failures of the League?
+	  - Major powers left the League and started remilitarising, Instead of condemning the Italy’s invasion, France secretly tried to reward them in exchange for ending the war, which hugely discredited the league.
+
+### Source Based Skill - Purpose
+
+[A cartoon by David Low, published after Japan invaded Manchuria in 1931-2.](./doormat.png "hi")
+
+cartoon from slide 14 ^^^
+
+(Refer to the cartoon in Slide 14) Why did the cartoonist publish this? Explain your answer using details from the source.)
+
+
+- Author
+    - David Low (Political cartoonist)
+- Aim + evidence + explain
+    - The aim of the artist is to criticise the league for having no real power to deal with crisis/members.
+- Action Word
+    - test
+- Audience
+ - test 
+- Anticipated Response
+ - 
+- Context
+ - 
 
