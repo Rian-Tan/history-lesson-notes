@@ -278,19 +278,68 @@ cartoon from slide 14 ^^^
 
 
 - Author
-    - David Low (Political cartoonist)
+    - David Low (Political cartoonist,, critical of the appeasement policy)
 - Aim + evidence + explain
-    - The aim of the artist is to criticise the league for having no real power to deal with crisis/members.
-    - The honour of nations being a doormat that can be stepped all over shows that they do not have any power.
+    - Criticise that the League of Nations was weak. It was depicted as a doormat, stepped upon by Japan. France gave a rather perfunctory bow to the oorat. Britain was putting make-up for the League of nations, trying to make it look good. This shows that the League of Nations had no power to stop Japan’s aggression. Not only did the members like Britain and France not intervene, their actions were depicted as whimsical and ludicrous, further emphasizing the weakness of the League of Nations
 - Action Word
-    - criticise 
+    - Influence
 - Audience
-    - British
+    - British citizens
 - Anticipated Response
-    - Feel a sense of anger towards the government for not taking any action against Japan
+    - Angry that the league of nations had no real power to stop aggression / criticize the LON
 - Context
-    - The invasion of Manchuria was in going on and the League of Nations only issued a Verbal condemn.
+    - Japan invaded manchuria, and the league of nations verbally condemned japan. Japan left the LON.
+
+### 15 july  2022
 
 
+### Meiji restoration: 
+
+## Study source A:
+
+![source A](./sourceA.png "source A")
+
+- What can you infer about the way the Japanese viewed the Russian soldiers? Explain your answer. [4] (Note: You only need to provide 1 inference for this question.)
+
+
+Inference:
+The Japanese viewed the Russian soldiers with contempt/viewed them as weak/inferior.
+
+Evidence: 
+This can be seen in the source where the Russian soldiers were depicted as fearful of the Japanese soldiers. One of the Russian soldiers knelt and begged for mercy. The other one appeared to be shrieking in fear. Yet, the Japanese were merely dangling dolls of Japanese soldiers at them.
+
+Explanation:
+This tells us that the Japanese regarded the Russians with much derision since the Russian soldiers were so easily frightened - even soldiers of dolls petrified them. 
+
+## Study source B:
+
+![source B](./sourceB.png "source B")
+
+- What can you derive about the way Japan was viewed by the West from 1905? Explain your answer. [4] (Note: You only need to provide 1 inference for this question.)
+
+
+Inference: 
+Japan was viewed as equal by the British
+
+Evidence:
+This can be seen in the source in how the figures representing Britain and Japan are both in the foreground of the cartoon, shaking hands and standing on level ground. The Japanese soldier is also not portrayed in a demeaning manner. In addition, the poem accompanying the cartoon proclaims how there is “neither East nor West” and refers to both figures as “Strong men”
+
+Explanation:
+This tells us that the British gave full recognition of Japan’s equal standing.
+
+
+## Purpose questions
+
+### Why did the author publish the Source?
+### Why was this source published?
+
+### 5As + Evidence Explanation + Context
+- Author
+- Aim
+- audience
+- action verb
+- anticipated response
+    - Change in mindset
+    - Change in behavior
 
 
