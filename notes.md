@@ -342,4 +342,33 @@ This tells us that the British gave full recognition of Japan’s equal standing
     - Change in mindset
     - Change in behavior
 
+### 22 July 2022
+
+
+## Source A:
+
+### The geography of Malaya* is a factor in its defence. The coastal plains were about 15 miles in width and filled with mangrove swamps. The mountain range, which runs from north to south is covered with dense jungle and vast areas that are almost unknown. Roads are few and heavily guarded, so that an invading army would be at the mercy of defenders securely hidden in the jungle.
+
+*Malaya - a term that broadly encompasses a set of states on the Malay peninsula and present-day Singapore
+
+
+How do you think such a report would affect the perceptions and attitudes of…
+
+- The british towards Singapore's defence?
+    - British would perceive that it would be easy to defend Singapore/adopt a complacent attitude. According to the source, the coastal plains, mountain range and dense jungle would make it difficult for the invaders. Hence, the british would think that singapore would have the upper hand since the geography of Malaya would work to the advantage of the defenders.
+
+- The locals with regard to how vulnerable Singapore was to attack?
+    - The locals would feel that Singapore was not that vulnerable since the dense jungle in Malaya would pose difficulties for invaders. Defenders hiding in the jungle would slow down advancing invaders.
+
+
+
+
+
+
+
+
+
+
+
+
 
