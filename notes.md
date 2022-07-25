@@ -362,8 +362,18 @@ How do you think such a report would affect the perceptions and attitudes of…
 
 
 
+### 25 july 2022
 
+## The fall of Singapore
 
+### Battle of Singapore
+
+- 8-15 Febuary 
+
+### The british surrender
+
+- 15 february 1942
+- Decision made by British Lieutenant General Arthur E. Percival in order to avert inevitable massacre
 
 
 
