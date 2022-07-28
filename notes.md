@@ -377,8 +377,20 @@ How do you think such a report would affect the perceptions and attitudes of…
 
 
 
+### 28 July 2022
+
+## Task 3: Individual response
+
+- Write a short personal response to the discussion question in your notebooks
+- Was it British ineptitude or Japanese superiority that sealed Singapore’s fate in 1942?
+- you should:
+    - state your stand
+    - Explain why
 
 
+### Answer:
+
+I think it was the British ineptitude that sealed Singapore's fate in 1942. The British did not provide enough aircraft to defend the airfields, had fewer and outdated equipment, did not and failed to recognise the use of tanks, had poor communication as well as a lack of physical and psychological preparedness, lack of training, were quick to retreat, clumsy, unaggressive, Slow, had practical unfamilitary, werent able to swim, didnt deploy resources well and had a lack of good leadership. All these ineptitudes lead to the fall of singapore. 
 
 
 
