@@ -423,3 +423,20 @@ I think it was the British ineptitude that sealed Singapore's fate in 1942. The 
 | Overly careful | Highly adept at military tactics |
 |     | Risk-taker| 
 
+### War tactics
+
+| British | Japanese|
+|-----|----|
+|Numerous tactical errors [^eg]| Effective tactics incorporating "mobility,aggressiveness and deception" that compensated for their weaknesses|
+
+[^eg]: e.g defending the northeast rather than the northwest coastline 
+
+### Pre-war preparation
+
+| British | Japanese |
+|-----|----|
+| Inadequate due to: | Well prepared; made audacious planning|
+| focus on the European theatre of war| E.g Espionage centre set up in singapore, spies were sent to gather information etc |
+| Complacency |     |
+
+
