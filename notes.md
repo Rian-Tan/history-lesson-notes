@@ -395,7 +395,7 @@ I think it was the British ineptitude that sealed Singapore's fate in 1942. The 
 
 ### 29 July 2022
 
-## Quality of troops
+### Quality of troops
 
 | British | Japanese |
 |-----|-----|
@@ -405,5 +405,12 @@ I think it was the British ineptitude that sealed Singapore's fate in 1942. The 
 | Inexperienced | Experienced in amphibious warfare |
 | Irresolute | Determined |
 
+### Availability & quality of war machinery/equipment
 
+| British | Japanese|
+|------|--|
+|No tanks for protection|brought tanks|
+|no anti-tank guns| also used bicycles|
+|Aircraft: Insufficient and outdated| Up to date weaponry|
+|   | Modern airforce comprising "Zero" fighter planes |
 
