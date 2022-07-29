@@ -364,7 +364,7 @@ How do you think such a report would affect the perceptions and attitudes of…
 
 ### 25 july 2022
 
-## The fall of Singapore
+# The fall of Singapore
 
 ### Battle of Singapore
 
@@ -403,4 +403,7 @@ I think it was the British ineptitude that sealed Singapore's fate in 1942. The 
 | Not/poorly trained | Well-trained |
 | badly equipped | Disciplined |
 | Inexperienced | Experienced in amphibious warfare |
-| Irresolute | Determined | 
+| Irresolute | Determined |
+
+
+
