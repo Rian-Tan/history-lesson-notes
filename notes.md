@@ -439,4 +439,5 @@ I think it was the British ineptitude that sealed Singapore's fate in 1942. The 
 | focus on the European theatre of war| E.g Espionage centre set up in singapore, spies were sent to gather information etc |
 | Complacency |     |
 
+AAAAAAAAAAAAAAA im sad
 
