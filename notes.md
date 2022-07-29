@@ -414,3 +414,12 @@ I think it was the British ineptitude that sealed Singapore's fate in 1942. The 
 |Aircraft: Insufficient and outdated| Up to date weaponry|
 |   | Modern airforce comprising "Zero" fighter planes |
 
+### Leadership
+
+| British | Japanese |
+|-----|-----|
+| Uninspiring (partly due to his manner and appearance) | Inspiring |
+| Lacked commanding presence | commanded respect; capable of  boosting soldiers' morale |
+| Overly careful | Highly adept at military tactics |
+|     | Risk-taker| 
+
