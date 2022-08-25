@@ -441,3 +441,31 @@ I think it was the British ineptitude that sealed Singapore's fate in 1942. The 
 
 AAAAAAAAAAAAAAA im sad
 
+## British military administration 
+ 
+During the Japanese occupation:
+- Hunger
+- Poverty
+- Disease
+- Wrecked infrastructure 
+
+### The British was expected to solve them
+
+Successes: 
+- They restored basic infrastructure like water, electricity, and gas. 
+- They prioritised education and made it available to the people
+- They dealt with the war crimes: “Double Tenth Trial”
+- They restored law and order with a new police recruiting campaign 
+
+Failures:
+- Failed to appease the Chinese community, who though the outcome of the 1947 sook ching trial was too lenient (7 charged and found guilty, 2 sentenced to death, 5 life imprisonment)
+- Exploitive employment
+- Exhibited racism to the local population
+- Failed to deal with corruption
+
+### How far did the BMA improve the people’s lives by the end of its period of rule? (did not improve)
+- The BMA failed to improve the lives of people because it did not ensure fair employment. The significant number of 102 000 workers employed by the BMA in the reconstruction work were paid poorly and some were even forced into servitude. This must have affected people deeply because without sufficient income, people will continue in poverty and hunger.
+
+### How far did the BMA improve the people’s lives by the end of its period of rule? (improve)
+- The BMA improved the lives of people because it managed to make education available for many people. Within three weeks of the administration, 14 Malay and 14 English schools were reopened. By the end of 1945, 66 chinese, 37 english and 21 malay schools were in operation. By march 1946, 62,000 children were in school. The many students receiving education shows that BMA did improve the lives of people. Furthermore, with more receiving education, the lives of people can gradually improve as they would be able to find better employment and more opportunities.
+
