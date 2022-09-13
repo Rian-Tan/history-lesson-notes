@@ -441,3 +441,35 @@ I think it was the British ineptitude that sealed Singapore's fate in 1942. The 
 
 AAAAAAAAAAAAAAA im sad
 
+### 13 september 2022
+
+## Lesson overview
+
+### External developments
+
+1. Rise in nationalistic movementw in Southeast Asia
+2. Growing Influence of Communism  [^footnote]
+
+- Cold war
+- Malayan Emergency 
+- Victory of chinese communist party
+
+
+## Rise in Nationalistic Movements in Southeast Asia
+
+- India (1947)
+- Burma (1948)
+- Indo-china War (Dec 1946 - Jul 1949)
+- Indonesia (Dec 1949)
+
+
+[^footnote]
+## Growing Influence of Communism 
+
+### Cold war
+
+- tension between united states and soviet union
+- different ideology: 
+   - Democracy / Capitalism vs Communism
+
+
