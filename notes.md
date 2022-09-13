@@ -463,7 +463,7 @@ AAAAAAAAAAAAAAA im sad
 - Indonesia (Dec 1949)
 
 
-[^footnote]
+
 ## Growing Influence of Communism 
 
 ### Cold war
