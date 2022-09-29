@@ -539,6 +539,27 @@ Many Malays felt that the Europeans have been controlling Southeast Asia for too
     - Pro-British/Dutch (e.g., Singapore Standard) -> Believed Maria was forced into marriage + Published photographs depicting Maria “Looking happy in a convent”.
     - Pro-Malay/Muslim (e.g., Melayu Raja / Malaya Nanban)
 
+## Anti-NS riots
+
+### What caused the riots? 
+
+Secondary students from CHinese-medium schools were unhappy with the National Service Ordinance passed in 1953
+
+### Effects of the riots
+
+- 500 students protested and the British deployed riot police, leaving 26 injured
+
+- closure of all Chinese-medium schools across Singapore
+
+- thousands of students locked themselves in Chung Cheng High School to protest
+
+
+### Role of the communists 
+
+- national service was unpopular
+- the communists had the sympathy of the general public against national service
+- The communists used this event to support the labour front if LF would register the Singapore Chinese Middle School Students' Union (SCMSSU), should it win in the 1955 election.
+- SCMSSU was registered after the 1955 elections.
 
 ## 1955 election
 
