@@ -469,3 +469,5 @@ Failures:
 ### How far did the BMA improve the people’s lives by the end of its period of rule? (improve)
 - The BMA improved the lives of people because it managed to make education available for many people. Within three weeks of the administration, 14 Malay and 14 English schools were reopened. By the end of 1945, 66 chinese, 37 english and 21 malay schools were in operation. By march 1946, 62,000 children were in school. The many students receiving education shows that BMA did improve the lives of people. Furthermore, with more receiving education, the lives of people can gradually improve as they would be able to find better employment and more opportunities.
 
+test
+
