@@ -469,5 +469,174 @@ Failures:
 ### How far did the BMA improve the people’s lives by the end of its period of rule? (improve)
 - The BMA improved the lives of people because it managed to make education available for many people. Within three weeks of the administration, 14 Malay and 14 English schools were reopened. By the end of 1945, 66 chinese, 37 english and 21 malay schools were in operation. By march 1946, 62,000 children were in school. The many students receiving education shows that BMA did improve the lives of people. Furthermore, with more receiving education, the lives of people can gradually improve as they would be able to find better employment and more opportunities.
 
+### 29 September 2022
+
+## How did external developments influence the people’s response to British rule after WWII
+
+### External developments:
+
+- Growing influence of Communism
+    - Cold war (USA vs Soviet Russia) god bless the united shades.
+        - Tension between United States and Soviet Union
+        - Different ideology : democracy/capitalism vs communism
+    - Malayan Emergency
+        - Caused by the deaths of three European rubber planters. Following their murder, a state of emergency was declared and the MCP (Malyan communist party) was declared illegal.
+        - Batang Kali: Heavily guarded food supply so that the MCP could not receive food from their supporters (barbed wire etc.) 
+    - Victory of Chinese Communist Party 
+        - Victory of CCP led by Mao Zedong in 1949
+        - Spread of communist ideas among the Chinese in Malayan and Singapore
+
+- Rise in nationalistic movements in Southeast Asia
+    - In India (1947), Burma (1948), Indo-China War (Dec 1946 to Jul 1954), Indonesia (Dec 1949) → Affected the locals in Singapore as they wanted to be freed / gain independence from their colonial masters
+
+Society is unequal and some have more advantages than the others, but there is economic freedom. People can own businesses and decide their own wages and prices and have a chance at economic success even if they are not born wealthy. With this freedom comes the chance to fail as well.
+
+- Democracy: 
+    - Free elections which could be contested 
+    - Upheld private enterprise and property ownership (buy their own business) 
+    - Valued individual freedom
+
+- Communism:
+    - Upheld one-party rule (only communist party)
+    - Believed goods should be allocated to people according to their needs. Thus, the government would control all resources needed to produce these goods, such as factories and farms 
+    - Regarded individual freedom as less important than the benefit of society
+
+### Weakening of Colonial rule:
+https://docs.google.com/document/d/1GyGgfMdtoSEkLHwOJ0kD5VzvN20fg_d4a7YcZFOIYiQ/edit?usp=sharing 
+
+### How did the British attempt to win local support
+
+https://docs.google.com/presentation/d/1WxQ0sonAUtIHpbKydI4oC0fyO_EiNIEVbFwrykhLRbk/edit?usp=sharing
+
+- Meeting Housing Challenges
+- Addressing Food Shortages
+- Managing Industrial Unrest
+- Rebuilding the Economy
+
+- Allowing Local Political Participation
+    - Reasons for low participation during 1948 election: 
+    - Only the people “approved” by the British were allowed to vote
+    - Non-English speakers did not register for the election
+    - Оnly 6 seats in Legislative Council were given to the local officers
+    - Only one party contested during the election (progressive party which is British puppet)
+
+
+## The Maria Hertogh Riots
+
+### What was the Maria Hertogh Riots?
+
+Maria used to live with her Dutch mother, Adeline, but during the Japanese occupation of Java, she was given to her mother’s friend, Aminah. During this process, there were no legal papers to say that Maria was being adopted. Therefore, in April 1950, when Adeline looked for Maria to take her back, Aminah was accused of holding on to Maria. The battle for Maria led to 3 rounds of legal fights and appeals. The first round went to the Dutch as the judge decided that Maria should be returned to her Dutch parents. Aminah appealed, and round 2 was won. On 2 December 1950, Maria’s Dutch parents won the third round as the court decided that Maria should be sent back to Holland and that the Muslim marriage that happened during the time did not count as Maria’s father never permitted them to be married. (Remember, it was legal and common that Muslim girls were married when they were 13 and 14) Aminah’s appeal was turned down, and Maria boarded a plane with her Dutch parents and left for good. The fight for Maria was not just between the two families, it was also between the Asians and Europeans. When the court made its final decision, a riot erupted. The Europeans and Eurasians (by mistake) were attacked, and from the 313 attacks around Singapore, 18 died and 173 were injured. 
+
+### Why did the riots start?
+
+Many Malays felt that the Europeans have been controlling Southeast Asia for too long and when the Dutch newspaper described Maria as living with primitive people, the Muslims were made more angry as it proved that the Europeans did  not respect them. In addition to this, newspapers published false information and added fuel to the fire. The British government was also not helpful as they stopped the Muslim Welfare Association from raising money to fight the court case although funds for the other side were still raised in Holland. The government also wanted to raise the minimum age to be married which further angered the local Muslims. Marim Ghani and Burhanuddin Al-Hemy were both politicians that owned newspapers, therefore it was easy to influence the locals as back then people were quick to believe rumours. One of the newspapers, Standard showed many photos of a happy Maria. But the Untusan Melayu published Maria looking sad. Furthermore, a Eurasian Singaporean H.L Velge was attacked, mistaken for a European. In self defence, he pulled a gun and wounded 2 Malays. The word spread that the police (false) were shooting at Malays and violence started for 3 more days. All in all, many who participated in the riots really wanted to just settle old scores with Europeans and if the authorities had acted more sensitively, the newspaper did not add fuel to the fire, then the riots would not have happened.
+
+### Who is to be blamed for the Maria Hertough Riots?
+
+- British authorities
+- Dutch
+- Media
+    - Pro-British/Dutch (e.g., Singapore Standard) -> Believed Maria was forced into marriage + Published photographs depicting Maria “Looking happy in a convent”.
+    - Pro-Malay/Muslim (e.g., Melayu Raja / Malaya Nanban)
+
+
+## 1955 election
+
+### Defining nationalism: A sense of belonging and independence in a country, be it political. (Identification with one’s own nation and support for its interests/Advocacy of or support for the political independence of a particular nation or people)
+
+#### Why did locals want a sense of nationalism
+
+- Anger at british “abandonment” (surrendered)
+- Resentment towards the British
+- Growing sense of nationalism
+
+#### The idea of a nation
+
+- “Imagined communities” (Benedict Anderson, 1983)
+- Community of people bound together by a sense of solidarity, common culture, language etc 
+
+### Effects of nationalism in Singapore:
+
+After the British left, the locals and Mr Lee were determined that we could govern themselves and be in a country where they were not pushed around and were independent
+
+### Progress toward internal self-government, 1948-1959
+
+1948: 
+- Full control of Singapore was under the British government/ 1st election
+1953: 
+- Rendel commision 
+
+### Aims of Rendel commission
+- Increase local participation in politics (eligible voters were automatically registered)
+    - 1948: 
+        - 22895 out of 100000 registered themselves for voting (22%)
+    - 1951: 
+        - 48155 out of 250000 registered (19%)
+
+- Allow local people to control certain areas of the government 
+    - Result
+        - Executive council replaced by a council of minister, comprising of the Chief minister and 5 other local ministers
+        - Portfolios of the 6 local ministers
+            - Commerce, 
+            - industry, 
+            - shipping, 
+            - agriculture,
+            - fishery,
+            - Labour, 
+            - immigration, 
+            - social welfare
+            - Education 
+            - Housing and administration of the adjacent islands, 
+            - town country planning and local government 
+            - Civil aviation, 
+            - communications and public works
+            - Health
+
+1955 
+- limited self-government: 
+    - The executive council (British) was replaced by the council of ministers (locals). Power from the local government increase but was still limited (law, finance and external affairs were still under the British)
+1956: 
+- 1st Merdeka talks 
+    - 23 April 1956
+    - Led by David Marshall
+    - Marshall's goal:
+        - Full internal self-government by April 1957
+        - Foreign policy and external defence in British hands,
+        - BUT Singapore to have veto on defence + right to be consulted on foreign affairs
+    - Outcome: failed 
+
+1957: 
+- 2nd Merdeka talks
+    - Under british control: 
+        - External Defence
+        - Foreign policy
+    - Under local control: 
+        - Trade, Law, Finance, Education and Health
+
+    - The second-all party mission returned with a constitution that, following further amendments in the final Merdeka talks held in 1958, paved the way for the attainment of full internal self-government and the formation of Singapore's first fully-elected government in 1959
+
+1959: 
+- Internal self-government:
+    - Locals in charge of all the country’s internal affairs
+    - British in charge of foreign affairs and external defence   
+1959 onwards: 
+- PAP
+
+### Reasons for increased political participation in 1955:
+
+1. Introduction of the Rendel Commision which encouraged greater local participation. For example, the automatic registering of all eligible voters, allowing the locals to control some areas of the government (Education, housing, trade, labour and health) and encouraging the participation of new parties (PAP, LF)
+
+
+2. Rise of nationalistic movements (India, Indonesia). This resulted in a increased desire in Singapore to end British rule and a increase in anti-British sentiments.
+
+
+3. Growing resentment towards the British, for example, the abandonment of the British during WWII (caused a feeling that the British failed the locals and that the British empire was not as great as it was before. In addition, the British failed to win support of the locals in some area, for example 
+
+https://docs.google.com/presentation/d/1WxQ0sonAUtIHpbKydI4oC0fyO_EiNIEVbFwrykhLRbk/edit?usp=sharing (factors 1, 3 and 5)
+
+
+
+
+
 test
 
