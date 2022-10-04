@@ -656,8 +656,22 @@ After the British left, the locals and Mr Lee were determined that we could gove
 https://docs.google.com/presentation/d/1WxQ0sonAUtIHpbKydI4oC0fyO_EiNIEVbFwrykhLRbk/edit?usp=sharing (factors 1, 3 and 5)
 
 
+### 4 october 2022
+
+## SBQ exercise 
+
+### Source A
+
+The cartoonist published the cartoon to influence/educate [action verb] Singaporean readers [audience] abou the vital role of the Rendel Constitution in paving the way for a limited self-government, which also encouraged the formation of political parties and representation [inference] The cartoon shows how Rendel was watering the mushrooms using a water canister labeled as Constitutino. The mushrooms represented the new political parties in Singapore such as the SPP, PAP, LF. [evidence] This suggests that the Rendel Constitution was what gave life to the formation of new political parties in Singapore. The Rendel Constitution led to new government structure that would apoint 25 elected local officials for the first time in Singapore's history. This encouraged the formation of new political parties as the people of Singapore looked to take on more power and responsibility from the British colonial government [explanation]. Since this book aims to commemorate the 35th anniversary of Singapore's events [context, the modern day readers in 2000 would be reminded about how significant the Rendel Constitution was and better appreciate it's role in Singapore's road towards limited self-government [anticipated response]
+
+### Source B
+
+I can learn tha the situation in Singapore during the 1950s was volatile. [inference] The MCP 'waged a violent armed insurgency...to establish a communist Malaya, which included Singapore.' [evidence] This meant that the communists used extreme tactics to overthrow the government and it led to a state of emergency as they frequently carried out murders. Daily life in Singapore must have been severely disrupted as a result. [explanation] Hence, the situation was volatile.
+
+OR
+
+I can also learn that the situation in Singapore was dangerous. [inference] The evidence states 'the MCP killing squads carried out at least 19 known murders, as well as numerous acid attacks, arson and other acts of violence... riots spread across the island, lasting five days and leaving 13 people dead and more than a hundred injured.' [evidence] This means that it was highly unsafe for the people of Singapore to be on the streets as they could be caught up in the events and lose their lives or suffer injuries due to the various aggressions caused by the Chinese school students, workers and other communists sympathizers. [explanation] Hence, the situation was dangerous.
 
 
-
-test
+test hi 
 
