@@ -673,5 +673,10 @@ OR
 I can also learn that the situation in Singapore was dangerous. [inference] The evidence states 'the MCP killing squads carried out at least 19 known murders, as well as numerous acid attacks, arson and other acts of violence... riots spread across the island, lasting five days and leaving 13 people dead and more than a hundred injured.' [evidence] This means that it was highly unsafe for the people of Singapore to be on the streets as they could be caught up in the events and lose their lives or suffer injuries due to the various aggressions caused by the Chinese school students, workers and other communists sympathizers. [explanation] Hence, the situation was dangerous.
 
 
+## BMA mindmap
+
+![theres a fancy mind map here yay](./BMA.png)
+
+
 test hi 
 
