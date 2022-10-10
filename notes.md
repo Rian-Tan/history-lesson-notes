@@ -1,11 +1,17 @@
 # EOY LINKS
 
 [BMA](#british-military-administration)
+
 [external developments and its influence on people's response to British rule aft WWII](#how-did-external-developments-influence-the-peoples-response-to-british-rule-after-wwii)
+
 [Maria Hertogh Riots](#the-maria-hertogh-riots)
+
 [Anti NS riots](#anti-ns-riots)
+
 [1955 election](#1955-election)
+
 [Rendel constitution](#aims-of-rendel-commission)
+
 [Mindmap on the BMA](#bma-mindmap)
 
 
